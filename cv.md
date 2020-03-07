@@ -1,6 +1,8 @@
 # Agapkina Diana
 
-
+>Phone: +375257881520 <br>
+>Telegram: @a_diasik <br>
+>Email: agapkinadianaa@gmail.com<br>
 
 ## **SUMMARY**
 I can say that I'm: 
